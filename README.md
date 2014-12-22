@@ -35,8 +35,20 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A funeral elegie, vpon the much lamented death of the trespuissant and vnmatchable king, King Iames,
+
+1. TO THE RIGHT HONOVRABLE, EDWARD EARLE OF Worcester, Lord of Chepstoll, Ragland and Gower, &c. Knight of the most Noble Order of the Garter, Lord 〈◊〉 Seale, and one of the Kings most Honourable 〈◊〉 C•…fort.
+
+1. To the sad Reader.
+
 #####Body#####
+
+1. A Funerall Elegie.
+
+    _ A short Elegie vpon the ANAGRAM.
+
+    _ A short Consolatory Elegie, alluding to the happy and blest succession, of the hopefull and most Royall CHARLES the first King of England stiled by that name.
+
+    _ An Acrosticke vpon the most happy Inauguration of CAROLVS IACOBVS STVARTVS our dread Lord and Soucraigne.
 
 **Types of content**
 
